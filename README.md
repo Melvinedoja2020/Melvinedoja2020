@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Melvinedoja2020
 - 👀 I’m interested in turning ideas to solutions
 - 🌱 I’m currently a Team lead of WanLainjo Tech Hub
-- 💞️ I’m looking to collaborate on  building Apps to solve services to Customer buying digitally 
+- 💞️ I’m looking to collaborate on  building Apps to solve and create  services to Customers digitally 
 - 📫 You can reach me on fb @Melvinedoj twitter@Iam_edoja
 
 <!---
